@@ -1,7 +1,7 @@
 ### Oi oi! sou diehlclaudino...🚀
 
 - 👔Atualmente sou Business Analytics na empresa NAGEM
-- 🖥💻Estudo Sitema da INformação
+- 🖥💻Estudo Sitema da Informação
 - 🎨No tempo livre estudo UX/UI Design, Webdesign, Responponsividade e tudo que envolve a desenvolvimento de Web Design. 
 
 
