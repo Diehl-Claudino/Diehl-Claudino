@@ -2,7 +2,7 @@
 
 - 👔Atualmente sou Business Analytics na empresa NAGEM
 - 🖥💻Estudo Sitema da Informação
-- 🎨No tempo livre estudo UX/UI Design, Webdesign, Responponsividade e tudo que envolve o ideas criativas. 
+- 🎨No tempo livre estudo UX/UI Design, Webdesign, Responponsividade e tudo que envolve ideas criativas. 
 
 
 
